@@ -1,3 +1,3 @@
-# Shakespeare & Tolkein Excerpts
+# Shakespeare & Tolkien Excerpts
 
 ## with Tim, Jordan, and Josh
