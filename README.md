@@ -1,3 +1,3 @@
 # Shakespeare & Tolkein Excerpts
 
-## by Tim Berglund
+## with Tim, Jordan, and Josh
